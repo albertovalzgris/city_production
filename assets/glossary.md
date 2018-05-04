@@ -1,0 +1,1 @@
++ **methodological cityism**: 'the analytical privileging, isolation and perhaps naturalization of the city in studies of urban processes where the non-city may also be significant' (Angelo and Wachsmuth, 2014)
